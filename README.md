@@ -1,6 +1,7 @@
-# ✦
--
+# ✦ 
 
-![Không Có Tiêu Đề73_20250415142547](https://github.com/user-attachments/assets/8ed76a8a-d777-4e8a-a9c6-dbdbe687a120)
+![Không Có Tiêu Đề143_20250428163237](https://github.com/user-attachments/assets/594b34c3-c88e-4555-9963-abc9221c92f7)
+         
 ✦ yrell , dnr, ty. 
-- commission art is allowed, read carrd, sign sp.
+- commission art is allowed, read carrd, sign sp
+
