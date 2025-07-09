@@ -1,6 +1,6 @@
 # ✦ 
 
-![aec65106-9acb-44bf-932c-53b8b8aa3e52](https://github.com/user-attachments/assets/a4ace4db-7783-473f-8b35-b501cd0f9da9)
+![276cd8cc-ada7-4e5b-b4ce-74b9a3ca1c48](https://github.com/user-attachments/assets/cdd57416-fd8e-405e-a61d-90b720282acb)
          
 ✦ yrell , iwc. 
 - commission art is allowed, read carrd, sign sp | blacklist-on
