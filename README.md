@@ -5,4 +5,4 @@
 ✦ nyte , iwc. 
 - commission art is allowed, read carrd, sign sp | blacklist-on . <img width="15" height="15" alt="dc298511" src="https://github.com/user-attachments/assets/bd26cca7-f678-474d-b258-124e7bdd5a0f" />
 
-#     ![kiznjt (1)](https://github.com/user-attachments/assets/4dde3311-bfcf-46a3-9271-dbaf585a97d6)
+#     <img width="56" height="18" alt="Không Có Tiêu Đề230_20250821000304" src="https://github.com/user-attachments/assets/1b42b47c-c95d-4d82-8159-40ff9ab9425f" />
