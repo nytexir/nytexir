@@ -4,4 +4,4 @@
          
 ✦  ᶦ  ᵈᵒⁿᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ  |  ɪᴡᴄ  <img width="15" height="15" alt="dc298511" src="https://github.com/user-attachments/assets/bd26cca7-f678-474d-b258-124e7bdd5a0f" />
 
-![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=E2DBAA&label=✦)
+![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=DDC28B&label=✦)
