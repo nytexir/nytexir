@@ -1,6 +1,6 @@
 # ![9ef6dd70](https://github.com/user-attachments/assets/de37a025-ba4c-4c9c-95f5-c8c8fb9c8455)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31erq64dndfml3z3ml6s2qsvlkei&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31erq64dndfml3z3ml6s2qsvlkei&redirect=true)
+![a978d013-96c9-4bc3-8d8d-801ebb62b69c](https://github.com/user-attachments/assets/84af438c-05d1-439f-aa37-44fc078d9e49)
          
 ✦  ᶦ  ᵈᵒⁿᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ  |  ɪᴡᴄ  <img width="15" height="15" alt="dc298511" src="https://github.com/user-attachments/assets/bd26cca7-f678-474d-b258-124e7bdd5a0f" />
 
