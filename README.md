@@ -1,5 +1,5 @@
 # ![9ef6dd70](https://github.com/user-attachments/assets/de37a025-ba4c-4c9c-95f5-c8c8fb9c8455)
 
-![4a35e1f4-68ad-4a96-9867-5680163a802d](https://github.com/user-attachments/assets/3add686e-4c5f-4b77-bb8f-723d3aa1b9c5)
+<img width="1500" height="500" alt="Untitled336_20260304203103" src="https://github.com/user-attachments/assets/ee98b7ea-bd46-438f-93d4-398a2a63f91c" />
          
 ![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=DDD198&label=✦)
