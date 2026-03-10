@@ -2,4 +2,4 @@
 
 <img width="1940" height="759" alt="Untitled346_20260311003612" src="https://github.com/user-attachments/assets/caad8187-d5c1-4355-acd4-48b31e777a35" />
          
-![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=DDD198&label=✦)
+![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=D7D4B4&label=✦)
