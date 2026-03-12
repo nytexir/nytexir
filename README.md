@@ -15,4 +15,4 @@ I only accept 3 slots a week and stop until Mar 30
 just sketch color cuz I don't have much time (՞っ ̫ _՞)𓈒 𓂂𓏸
 ( check art gallery to see) 
 
-to be requested: inbox my discord (nytexir) with a screenshot of ur GitHub / pony, then send ur oc or any characters u like! u can also send a pose reference if u don't have any idea (or I'll use my own pose) ^w^
+to request: inbox my discord (nytexir) with a screenshot of ur GitHub / pony, then send ur oc or any characters u like! u can also send a pose reference if u don't have any idea (or I'll use my own pose) ^w^
