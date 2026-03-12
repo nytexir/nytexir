@@ -10,7 +10,7 @@
 
 thank yall for 500 followers ˃ 𖥦 ˂
 
-I only accept 3 slots a week and stop until Mar 30
+I only accept 3 slots a week and active until Mar 30
 
 just sketch color cuz I don't have much time (՞っ ̫ _՞)𓈒 𓂂𓏸
 ( check art gallery to see) 
@@ -18,3 +18,8 @@ just sketch color cuz I don't have much time (՞っ ̫ _՞)𓈒 𓂂𓏸
 to request: inbox my discord (nytexir) with a screenshot of ur GitHub / pony, then send ur oc or any characters u like! u can also send a pose reference if u don't have any idea (or I'll use my own pose) ^w^
 
 slots in this week: 1/3
+
+sample if u dont know how the chest and base color look like :
+
+<img width="1536" height="2048" alt="Untitled349_20260312191432" src="https://github.com/user-attachments/assets/68d6daac-f571-42ae-b6e4-688ab4c9fd85" />
+
