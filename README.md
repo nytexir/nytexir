@@ -16,7 +16,7 @@ just base color - chest up cuz I don't have much time (՞っ ̫ _՞)𓈒 𓂂�
 
 to request: inbox my discord (nytexir) with a screenshot of ur GitHub / pony, then send ur oc or any characters u like! u can also send a pose reference if u don't have any idea (or I'll use my own pose) ^w^
 
-slots in this week: 1/3
+slots in this week: 2/3
 
 sample if u dont know how the chest up and base color look like :
 
