@@ -22,3 +22,10 @@ sample if u dont know how the chest up and base color look like :
 
 <img width="1536" height="2048" alt="Untitled349_20260312191432" src="https://github.com/user-attachments/assets/68d6daac-f571-42ae-b6e4-688ab4c9fd85" />
 
+.
+
+![IMG_20260327_211602](https://github.com/user-attachments/assets/574c8320-6903-4cce-8799-3d04020cde35)
+
+↑ leaker, borrowing money and not paying it back, copier, anyone close to this person pls stay away from me.
+
+If you don't pay, just wait to be ostracized.
