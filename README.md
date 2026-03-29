@@ -5,11 +5,3 @@
 [art gallery](https://padlet.com/hugm3/sample-frjhavpicklqwqc4)   -  [返事─── あかくろ ̫ 11041105](https://guns.lol/nytexir)
 
 ![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=D7D4B4&label=✦)
-
-.
-
-![IMG_20260327_211602](https://github.com/user-attachments/assets/574c8320-6903-4cce-8799-3d04020cde35)
-
-↑ leaker, borrowing money and not paying it back, copier, anyone close to this person pls stay away from me.
-
-If you don't pay, just wait to be ostracized.
