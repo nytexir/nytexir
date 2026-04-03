@@ -4,4 +4,6 @@
 
 [art gallery](https://padlet.com/hugm3/sample-frjhavpicklqwqc4)   -  [perspective](https://articnyte.wordpress.com/31012.20)
 
+! [🏀]( https://guns.lol/nytexir) 
+
 ![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=D7D4B4&label=✦)
