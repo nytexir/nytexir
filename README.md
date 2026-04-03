@@ -2,6 +2,6 @@
 
 ![ezgif com-animated-gif-maker (1)](https://github.com/user-attachments/assets/7a6e2565-987a-403f-afdf-8f05b32291c7)
 
-[art gallery](https://padlet.com/hugm3/sample-frjhavpicklqwqc4)   -  [返事─── あかくろ ̫ 11041105](https://guns.lol/nytexir)
+[art gallery](https://padlet.com/hugm3/sample-frjhavpicklqwqc4)   -  [perspective](https://articnyte.wordpress.com/31012.20)
 
 ![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=D7D4B4&label=✦)
